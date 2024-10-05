@@ -1,0 +1,67 @@
+-Do you put on your Socks or Pants First
+-What is the best Soup
+-Do You believe in Ghosts?
+-What’s the best book you read recently? 
+-What’s a useful digital tool or website you use regularly? This can be for work, a hobby, shopping, finance etc. 
+-Would you hold this frog? https://mongabay-images.s3.amazonaws.com/1200/animals/calacad_032.jpg
+-Which is the food dish which was more tasty than you expected ? Where did you have it?
+-It's a potluck dinner - what are you bringing?
+-What is your go-to podcast?
+-Ok, but would you hold THIS frog? https://www.science.org/do/10.1126/science.aad7508/abs/sn-redfrogs.jpg
+-What’s for Lunch today?
+-Which would be worse: stuck on a broken ski lift or in a broken elevator?
+-Which film would you give the Oscar for best film to if was your decision alone?
+-IPA beers. Are they great or do you despise them?
+-When was the last time you saw a Giraffe?
+-How does one transport a Giraffe?
+-We’re on a roll! Where would a Giraffe wear a tie??? https://www.boredpanda.com/blog/wp-content/uploads/2016/11/how-giraffes-wear-ties-1-1.jpg (Thanks Nima)
+-Every team deserves a dumb animal mascot. What do you think Ours should be?
+-Tell us something new you learned recently
+-What do you do when you find a spider in your house? (ie, catch and release, ignore, EXTERMINATE) 
+-How much water do you drink in a day?
+-Should a vampire see themselves in a Google meeting?
+-You are a top gun pilot. What is your call sign?
+-Pizza the next day: Cold straight from the fridge, Luke warm from the countertop where you left it, or carefully heated up via some method you are about to describe?
+-Point to North
+-Which slack reaction do you use the most besides :thumbs:
+-You’re a burglar… BUT! You can only steal things that MILDLY inconvenience your victims. What are you taking?
+-What could you secretly sneak into someone’s house to make their life instantly better (Inspired by Mandeep’s laundry angel who snuck three wolf moon shirts into their laundry)
+-What was you first computer?
+-Fire, Water, Earth, Air or Spirit? Pick one!
+-Is there a story behind your name?
+-What’s the best candy? 
+-What’s for dinner?
+-Show us something that’s on your desk!
+-Do you think extra terrestrial aliens have ever visited earth? 
+-Who’s the oldest living member of your family? How old are they? 
+-What’s something you believed that you discovered wasn’t true  (Ie. Apparently you’re not supposed to rinse out your mouth after toothpaste???) 
+-What do you think your pets dream about?
+-Do you have tattoos? If not would you get one? 
+-If cost was not a factor, where would you go on vacation? 
+-Are you a gamer? If so what are you playing right now?
+-If we got everyone together, which member of the team do you think would win in a 1000 m foot race?
+-Who on this team would you ask to help you change a tire? 
+-What would you name this dog? https://canadapooch.com/cdn/shop/products/ResortTerryHat_Checkered_Front_2_520x.progressive.jpg?v=1680619381
+-What would you name this cat? One of the "smart set"  
+-Have you ever had an encounter with a famous person? 
+-Do you have a morning ritual?
+-MARCH 19TH - today is the first day of spring; When does spring really start where you live?
+-APRIL 20th Its the start of DATE PALINDROME WEEK BABY  this won’t happen for another thousand years 
+-Do you garden, have houseplants, ect, or do green things wither and die in your presence? 
+-If you were to cast yourself in a noir film, who do you think you’d be? (Ie, the ingenue, the mysterious widow, the hardboiled PI, the murder victim, the shopkeep key witness ect.) 
+-If you were to cast yourself in a summer blockbuster film, who do you think you’d be? (Comedy sidekick, the nerdy hacker, the Sam Witwiky style bland protagonist, Quirky love interest, evil general, screaming citizen running from the collapsing building ect.) 
+-Salty or sweet? 
+-What’s the best part about spring?
+-What’s the worst part about spring?
+-Can you play any musical instruments? What are they? 
+-Which is cuter? Otters holding hands https://www.beforetheflood.com/wp-content/uploads/2023/12/Why-Do-Otters-Hold-Hands.jpg , or kittens napping on top of dogs?https://i.ytimg.com/vi/MxwH9RbQzJ0/maxresdefault.jpg OR an alt you’re going to suggest?
+-What is your favourite flavour combo? e.g. peanut butter and chocolate, salt and vinegar….
+-What is your beige flag? (if you’re not hip with the lingo, this just means what’s something a little weird/quirky about you that is neither good(green) or bad(red)?)
+-Is there an expression or turn of phrase you like use a lot? BONUS: If english isn’t your native language, is there an expression from your mother tongue you like? (Ie. “What’s good for the goose is good for the gander”)
+-What was the first language you ever programmed in? 
+-What was the last show you binge watched?
+-If you could steal any one prop from film or television, what would it be (ie: Luke’s lightsaber, the giant dog statue from Friends, ect) 
+-How do you make coffee? (Non Coffee drinkers: how do you prep your morning beverage of choice) 
+-What’s your favourite kitchen gadget/tool?
+-What’s your RPG Class? Any game system applies  (Ie. Medic/Cleric, Rogue, sniper, thief, fighter, wizard) 
+-If you weren’t a software dev (or EM/PM/Designer etc), what would you do as a career?
